@@ -1,2 +1,2 @@
 # -Blooket-Hacks
-Find blooket hacks here
+Find the best blooket hacks here
